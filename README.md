@@ -1,6 +1,6 @@
 ## 📍 Chief Hopi White Eagle 📍
 
-"Este momento que a humanidade está vivendo pode ser visto como uma porta ou um buraco. 
+"Este momento que a humanidade está vivendo pode ser visto como uma porta ou um buraco."
 
 A decisão de cair no buraco ou passar pela porta depende de você! Se você consumir notícias com energia negativa o tempo todo, ficar  constantemente ansioso,  pessimista, então você cairá nesse buraco. 
 
