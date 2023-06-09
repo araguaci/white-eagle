@@ -1,4 +1,4 @@
-## Chefe Hopi White Eagle 📍📍📍 😇
+## 📍 Chefe Hopi White Eagle 📍
 
 "Este momento que a humanidade está vivendo pode ser visto como uma porta ou um buraco. 
 
@@ -42,3 +42,4 @@ Isso é tudo o que você pode fazer agora:
 
 - Demonstre resistência por meio da arte, da alegria, da confiança e do amor.
 
+😇
