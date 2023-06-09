@@ -1,4 +1,4 @@
-## 📍 Chefe Hopi White Eagle 📍
+## 📍 Chief Hopi White Eagle 📍
 
 "Este momento que a humanidade está vivendo pode ser visto como uma porta ou um buraco. 
 
